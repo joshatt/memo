@@ -1,3 +1,4 @@
+- [明鏡火拍](https://www.youtube.com/c/mingjinghuopai/videos) #news
 - [NPR Music](https://www.youtube.com/c/nprmusic/videos) #music
 
 
