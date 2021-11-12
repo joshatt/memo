@@ -1,3 +1,4 @@
+- [osmos::memo - 把书签记录到 Github 上 - 发现频道 - 小众软件官方论坛](https://meta.appinn.net/t/topic/23678) #test
 
 # About
 
