@@ -1,3 +1,4 @@
+- [Ben Shapiro](https://www.youtube.com/c/BenShapiro/videos) #news
 - [jimdandy1958](https://www.youtube.com/c/Jimdandy1958/videos) #mt4
 - [free to soar](https://www.youtube.com/c/%E8%87%AA%E7%94%B1%E9%A3%9E%E7%BF%942018/videos) #other
 - [street level photography](https://www.youtube.com/c/StreetLevelPhotography/videos) #photography
