@@ -1,3 +1,4 @@
+- [關鍵時刻](https://www.youtube.com/c/ettvCTime/videos) #news
 - [sun riches](https://www.youtube.com/user/sun2823793/videos) #news
 - [KEXP](https://www.youtube.com/c/kexp/videos) #music
 - [Sean Tucker](https://www.youtube.com/c/SeanTuckerphoto/videos) #photography
