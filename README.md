@@ -1,3 +1,4 @@
+- [楊世光在金錢爆](https://www.youtube.com/c/%E9%87%91%E9%8C%A2%E7%88%86/videos) #news
 - [Ben Shapiro](https://www.youtube.com/c/BenShapiro/videos) #news
 - [jimdandy1958](https://www.youtube.com/c/Jimdandy1958/videos) #mt4
 - [free to soar](https://www.youtube.com/c/%E8%87%AA%E7%94%B1%E9%A3%9E%E7%BF%942018/videos) #other
