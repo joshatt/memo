@@ -1,3 +1,4 @@
+- [sun riches](https://www.youtube.com/user/sun2823793/videos) #news
 - [KEXP](https://www.youtube.com/c/kexp/videos) #music
 - [Sean Tucker](https://www.youtube.com/c/SeanTuckerphoto/videos) #photography
 - [Rayner Teo](https://www.youtube.com/user/tradingwithrayner/videos) #mt4
