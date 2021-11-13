@@ -1,3 +1,4 @@
+- [Sean Tucker](https://www.youtube.com/c/SeanTuckerphoto/videos) #photography
 - [Rayner Teo](https://www.youtube.com/user/tradingwithrayner/videos) #mt4
 - [楊世光在金錢爆](https://www.youtube.com/c/%E9%87%91%E9%8C%A2%E7%88%86/videos) #news
 - [Ben Shapiro](https://www.youtube.com/c/BenShapiro/videos) #news
