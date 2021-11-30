@@ -1,3 +1,4 @@
+- [How To Trade The 1 Minute Time-Frame (My Complete Strategy Revealed)](https://www.youtube.com/watch?v=ncvBD2TXKys)
 - [Scalping: An effective and highly profitable trading strategy](https://www.youtube.com/watch?v=8F3mdBtygzQ)
 - [Trader Psychology: Every Elite Trader Has These Six Qualities With Dr. Brett Steenbarger](https://www.youtube.com/watch?v=lsmnlIoH5qA)
 - [Trading Psychology: How to Handle FOMO (Dr. Steenbarger)](https://www.youtube.com/watch?v=bEXz7Abf-wM)
