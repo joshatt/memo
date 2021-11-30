@@ -1,3 +1,4 @@
+- [Scalping: An effective and highly profitable trading strategy](https://www.youtube.com/watch?v=8F3mdBtygzQ)
 - [Trader Psychology: Every Elite Trader Has These Six Qualities With Dr. Brett Steenbarger](https://www.youtube.com/watch?v=lsmnlIoH5qA)
 - [Trading Psychology: How to Handle FOMO (Dr. Steenbarger)](https://www.youtube.com/watch?v=bEXz7Abf-wM)
 - [Price Action Trading Expert (Learn From Him!) - Al Brooks  | Trader Interview](https://www.youtube.com/watch?v=GwEtBdh9sEY)
