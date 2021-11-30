@@ -1,3 +1,4 @@
+- [Whitney Houston Greatest Hits Full Album | Whitney Houston Best Song Ever All Time](https://www.youtube.com/watch?v=jLcqAwHpP8k)
 - [Dr David Paul - The Psychology of Trading & Investing](https://www.youtube.com/watch?v=MGglyvc8d58)
 - [How To Trade The 1 Minute Time-Frame (My Complete Strategy Revealed)](https://www.youtube.com/watch?v=ncvBD2TXKys)
 - [Scalping: An effective and highly profitable trading strategy](https://www.youtube.com/watch?v=8F3mdBtygzQ)
