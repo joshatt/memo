@@ -1,3 +1,4 @@
+- [Trading Psychology: How to Handle FOMO (Dr. Steenbarger)](https://www.youtube.com/watch?v=bEXz7Abf-wM)
 - [Price Action Trading Expert (Learn From Him!) - Al Brooks  | Trader Interview](https://www.youtube.com/watch?v=GwEtBdh9sEY)
 - [Julia Cooper's Originality Comes Through on Maggie Rogers' "Alaska" - The Voice Blind Auditions 2020](https://www.youtube.com/watch?v=UsoyY2vTwBw&list=RDUsoyY2vTwBw&start_radio=1)
 - ['Is This Patriot Enough?': Asian American Official Shows Military Scars, Condemns Racist Violence](https://www.youtube.com/watch?v=zTJa_SwHcTE)
