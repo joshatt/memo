@@ -1,3 +1,4 @@
+- ['Is This Patriot Enough?': Asian American Official Shows Military Scars, Condemns Racist Violence](https://www.youtube.com/watch?v=zTJa_SwHcTE)
 - [翻墙安全吗？节点是怎么钓鱼的?演示使用V2Ray搭建免费节点服务器进行钓鱼，篡改、盗取用户数据，http/https/中间人攻击/DNS劫持，科学上网、安全上网建议，翻墙原理分析，你还敢随便用吗？](https://www.youtube.com/watch?v=vuF6rDLp3pg)
 - [Complete Supply and Demand Trading Guide - Drawing Zones, Entries, Exits, for futures, stocks, forex](https://www.youtube.com/watch?v=4rq-NXRugdE)
 - [關鍵時刻](https://www.youtube.com/c/ettvCTime/videos) #news
