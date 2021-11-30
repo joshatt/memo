@@ -1,3 +1,4 @@
+- [Complete Supply and Demand Trading Guide - Drawing Zones, Entries, Exits, for futures, stocks, forex](https://www.youtube.com/watch?v=4rq-NXRugdE)
 - [關鍵時刻](https://www.youtube.com/c/ettvCTime/videos) #news
 - [sun riches](https://www.youtube.com/user/sun2823793/videos) #news
 - [KEXP](https://www.youtube.com/c/kexp/videos) #music
