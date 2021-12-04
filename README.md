@@ -1,3 +1,4 @@
+- [華視三國演議](https://www.youtube.com/c/%E8%8F%AF%E8%A6%96%E4%B8%89%E5%9C%8B%E6%BC%94%E8%AD%B0/videos) #news
 - [穷游世界我们的奇行](https://www.youtube.com/channel/UCSW4sokhjnXHipsOdv7T1wA/videos) #tour
 - [Whitney Houston Greatest Hits Full Album | Whitney Houston Best Song Ever All Time](https://www.youtube.com/watch?v=jLcqAwHpP8k)
 - [Dr David Paul - The Psychology of Trading & Investing](https://www.youtube.com/watch?v=MGglyvc8d58)
