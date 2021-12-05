@@ -1,3 +1,4 @@
+- [自说自话的总裁](https://www.youtube.com/c/%E8%87%AA%E8%AF%B4%E8%87%AA%E8%AF%9D%E7%9A%84%E6%80%BB%E8%A3%81/videos) #other
 - [華視三國演議](https://www.youtube.com/c/%E8%8F%AF%E8%A6%96%E4%B8%89%E5%9C%8B%E6%BC%94%E8%AD%B0/videos) #news
 - [穷游世界我们的奇行](https://www.youtube.com/channel/UCSW4sokhjnXHipsOdv7T1wA/videos) #tour
 - [Whitney Houston Greatest Hits Full Album | Whitney Houston Best Song Ever All Time](https://www.youtube.com/watch?v=jLcqAwHpP8k)
