@@ -1,3 +1,4 @@
+- [Brandi Carlile - YouTube](https://www.youtube.com/results?search_query=Brandi+Carlile) #music
 - [寰宇新聞台 24小時線上直播](https://www.youtube.com/watch?v=Fpsi2cmXGMs) #news
 - [蔡森](https://www.youtube.com/channel/UCoZ94vl_voZvcQNInS_VL5w/videos) #mt4
 - [PS修图学院程海朝](https://www.youtube.com/c/%E7%A8%8B%E6%B5%B7%E6%9C%9DPS%E4%BF%AE%E5%9B%BE%E5%AD%A6%E9%99%A2/videos) #photography
