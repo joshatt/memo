@@ -1,3 +1,4 @@
+- [科学 - YouTube](https://www.youtube.com/results?search_query=%E7%A7%91%E5%AD%A6) #other
 - [Brandi Carlile - YouTube](https://www.youtube.com/results?search_query=Brandi+Carlile) #music
 - [寰宇新聞台 24小時線上直播](https://www.youtube.com/watch?v=Fpsi2cmXGMs) #news
 - [蔡森](https://www.youtube.com/channel/UCoZ94vl_voZvcQNInS_VL5w/videos) #mt4
