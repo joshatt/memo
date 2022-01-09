@@ -1,3 +1,4 @@
+- [most beautiful places in the world - YouTube](https://www.youtube.com/results?search_query=most+beautiful+places+in+the+world) #tour
 - [4K电影](https://www.aliyundrive.com/s/QdwVuBQtQeo/folder/61aee2ec6196eb1d88964723863bfd1dcffe4975) #other#ali
 - [漫威电影合集](https://www.aliyundrive.com/s/LoLStqVyx4U/folder/61af04323a55e3e050b948d487c2118ba239db71) #other#ali
 - [阿里云盘资源-长期更新-建议收藏 – Funletu](https://funletu.com/10557/.html) #other#ali
