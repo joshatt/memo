@@ -1,3 +1,4 @@
+- [多國航空公司取消美國航班，美國假5G與手機信號弱真相；拜登考慮取消中國關稅！中國玻璃屋：藍領艱辛｜點點今天事（20220120）](https://www.youtube.com/watch?v=o69pARm_xA8)
 - [Install windows system for Oracle cloud](https://www.youtube.com/watch?v=VzB4tZP7Njg)
 - [Over +$5,000 This Week! (SO FAR) How I Managed Open Positions! - YouTube](https://www.youtube.com/watch?v=6oL6n4L9EXE)
 - [Ben Shapiro Recaps Biden’s DISASTROUS First Year as President](https://www.youtube.com/watch?v=HBkoNvE4MOI)
