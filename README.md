@@ -1,3 +1,4 @@
+- [5A级景区：槟榔谷黎苗文化旅游区](https://www.youtube.com/watch?v=oZ8L12F-UxI&t=0)
 - [降降降降降息? 人行的長津湖戰役 20220120《楊世光在金錢爆》第2794集](https://www.youtube.com/watch?v=x-kV6Ys-43M&t=0)
 - [This Week Has Been NUTS! $11,000+ Recap! (EA, GA, & Gsgd)](https://www.youtube.com/watch?v=B3nB7-cgQhQ&t=0)
 - [BLOWN AWAY! Taking Photographs with my DRONE and now I'm ADDICTED!](https://www.youtube.com/watch?v=2GVb2O-G-To&t=0)
