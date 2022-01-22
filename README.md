@@ -1,3 +1,4 @@
+- [Ryan Shirley - YouTube](https://www.youtube.com/c/RyanShirley/videos)
 - [温相说党史 - YouTube](https://www.youtube.com/channel/UCGtvPQxpuRrXeryEWxQkAkA/videos)
 - [Massive volcanic eruption spawns tsunami](https://www.youtube.com/watch?v=mzlqNNaHzdE)
 - [【精選】世界上最大火藥桶？黃石公園藏11座峽谷岩漿 「超級火山」噴發恐毀滅世界？【關鍵時刻】-劉寶傑 王瑞德 陳耀寬 傅鶴齡 黃創夏 朱學恒](https://www.youtube.com/watch?v=EfpgnLoGJYQ)
