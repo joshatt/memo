@@ -1,3 +1,4 @@
+- [70后慢生活 - YouTube](https://www.youtube.com/c/70%E5%90%8E%E9%80%80%E4%BC%91%E6%97%A5%E8%AE%B0/videos)
 - [走进中国极旱之地——宁夏西海固！在深山里偶遇道长，谈天地玄妙，在六盘山，体验雪地风光！固原老城，望尽历史沧桑！](https://www.youtube.com/watch?v=nl8fEWbc-tY)
 - [bollinger bands - YouTube](https://www.youtube.com/results?search_query=bollinger+bands)
 - [Uncle Rural Gourmet - YouTube](https://www.youtube.com/channel/UC00q9Udz9vdljIfN-8fCkQQ/videos)
