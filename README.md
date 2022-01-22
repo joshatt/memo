@@ -1,3 +1,4 @@
+- [bollinger bands - YouTube](https://www.youtube.com/results?search_query=bollinger+bands)
 - [Uncle Rural Gourmet - YouTube](https://www.youtube.com/channel/UC00q9Udz9vdljIfN-8fCkQQ/videos)
 - [Ryan Shirley - YouTube](https://www.youtube.com/c/RyanShirley/videos)
 - [温相说党史 - YouTube](https://www.youtube.com/channel/UCGtvPQxpuRrXeryEWxQkAkA/videos)
