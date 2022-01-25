@@ -1,3 +1,4 @@
+- [【精選】烏克蘭捕獲外星吸血怪 ？竟遭ufo轟炸 NASA急派兵秘密收回！【關鍵時刻】-劉寶傑 黃創夏 傅鶴齡 馬西屏 眭澔平](https://www.youtube.com/watch?v=Zp--vh65Slc&t=0s)
 - [阻擊習近平二十大連任，李克強利用鄭州水災拿下徐立毅？追責系統有沒有？打開城門：烏克蘭為何有戰爭危險？岳先生找律師與丰台群染｜點點今天事（20220123）](https://www.youtube.com/watch?v=C8l8AdOpwYY)
 - [Starting Over](https://www.youtube.com/watch?v=WbNy0GQTomk&list=PLfiMjLyNWxebH70bmVT5pgxcPzvJj-04z)
 - [李克強到鄭州發現問題，習近平拿徐立毅開斬，問責怎麼拖了那麼久？岳先生家的悲歌不符合想像？美國二院二剛：鎖志剛與陳剛，列伯為何問罪｜點點今天事（20220122）](https://www.youtube.com/watch?v=9Nmjs-NuXIw)
