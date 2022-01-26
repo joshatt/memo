@@ -1,3 +1,4 @@
+- [Why Education Is Problematic | Adam Carolla Truth Yeller w/T.J. Miller](https://www.youtube.com/watch?v=23W9fHaXD60)
 - [This Is the Only Kind of Diversity the Left Cares About](https://www.youtube.com/watch?v=4I8xTcylNkw)
 - [美國從中國撤離外交人員？軍情六處策反中國導彈專家？美國會發生內戰？立陶宛更名台灣？清零改變試點？中美股市風水對調？](https://www.youtube.com/watch?v=pRBx9BnOWMQ)
 - [腰痛怎么办？居家自我治疗之法；端正坐姿最为重要｜今夜十点见（梅和詠医师 江汉）](https://www.youtube.com/watch?v=uktHDnPFgUM)
