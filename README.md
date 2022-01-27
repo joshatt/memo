@@ -1,3 +1,4 @@
+- [百名外交官離華如何？彭帥怎可見巴赫，張高麗作陪？普京給習近平面子：烏克蘭之事延後；鮑威爾、布雷耶、佩洛西｜點點今天事（20230127）](https://www.youtube.com/watch?v=JkDBqmnyAY0)
 - [美联储再度议息，比特币破4万？牛市回来了？ETH拐点已出，币安抢钱！小伙资产被冻结，找警察律师不管用，网路发长文求助,活不成了！钱没了！](https://www.youtube.com/watch?v=sKPHpAn74P4)
 - [空頭終點站VS.中繼站 今晚鮑威爾扮救世主? 20220126《楊世光在金錢爆》第2798集](https://www.youtube.com/watch?v=K4uABQfHwfY)
 - [Why Education Is Problematic | Adam Carolla Truth Yeller w/T.J. Miller](https://www.youtube.com/watch?v=23W9fHaXD60)
