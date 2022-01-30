@@ -1,5 +1,4 @@
 - [5 Reasons to buy the Leica M Monochrom in 2022](https://www.youtube.com/watch?v=lwFIgHKpvw4)
-- [河头里小区 - 百度地图](https://map.baidu.com/poi/%E6%B2%B3%E5%A4%B4%E9%87%8C%E5%B0%8F%E5%8C%BA/@13149510.56,4779491.47,12z?uid=d1469ee7a7b65662843304d6&ugc_type=3&ugc_ver=1&device_ratio=1&compat=1&pcevaname=pc4.1&querytype=detailConInfo&da_src=shareurl)
 - [Andhika Zanuar - YouTube](https://www.youtube.com/c/andhikazanuar/videos)
 - [红遍中国，为什么还要离开？洋人学中医、瑜珈，纽约当针灸师；《新还珠格格》男主角改行的故事｜今夜十点见（班杰明、江汉）](https://www.youtube.com/watch?v=xzQWnleYMDw)
 - [百名外交官離華如何？彭帥怎可見巴赫，張高麗作陪？普京給習近平面子：烏克蘭之事延後；鮑威爾、布雷耶、佩洛西｜點點今天事（20230127）](https://www.youtube.com/watch?v=JkDBqmnyAY0)
@@ -7,17 +6,16 @@
 - [空頭終點站VS.中繼站 今晚鮑威爾扮救世主? 20220126《楊世光在金錢爆》第2798集](https://www.youtube.com/watch?v=K4uABQfHwfY)
 - [Why Education Is Problematic | Adam Carolla Truth Yeller w/T.J. Miller](https://www.youtube.com/watch?v=23W9fHaXD60)
 - [This Is the Only Kind of Diversity the Left Cares About](https://www.youtube.com/watch?v=4I8xTcylNkw)
-- [美國從中國撤離外交人員？軍情六處策反中國導彈專家？美國會發生內戰？立陶宛更名台灣？清零改變試點？中美股市風水對調？](https://www.youtube.com/watch?v=pRBx9BnOWMQ)
 - [腰痛怎么办？居家自我治疗之法；端正坐姿最为重要｜今夜十点见（梅和詠医师 江汉）](https://www.youtube.com/watch?v=uktHDnPFgUM)
 - [SLR Lounge | Photography Tutorials - YouTube](https://www.youtube.com/c/SlrloungeOfficial/videos)
-- [烏克蘭何時開戰，為何美英撤僑歐盟不撤；清除孫力軍余毒組；多位省委副書記被降職；《經濟學人》錯解中國玻璃屋；陳剛之殤；拜登道歉｜點點今天事（20220125）](https://www.youtube.com/watch?v=vgNSbJbdmXM)
+
 - [【精選】烏克蘭捕獲外星吸血怪 ？竟遭ufo轟炸 NASA急派兵秘密收回！【關鍵時刻】-劉寶傑 黃創夏 傅鶴齡 馬西屏 眭澔平](https://www.youtube.com/watch?v=Zp--vh65Slc&t=0s)
-- [阻擊習近平二十大連任，李克強利用鄭州水災拿下徐立毅？追責系統有沒有？打開城門：烏克蘭為何有戰爭危險？岳先生找律師與丰台群染｜點點今天事（20220123）](https://www.youtube.com/watch?v=C8l8AdOpwYY)
+
 - [Starting Over](https://www.youtube.com/watch?v=WbNy0GQTomk&list=PLfiMjLyNWxebH70bmVT5pgxcPzvJj-04z)
-- [李克強到鄭州發現問題，習近平拿徐立毅開斬，問責怎麼拖了那麼久？岳先生家的悲歌不符合想像？美國二院二剛：鎖志剛與陳剛，列伯為何問罪｜點點今天事（20220122）](https://www.youtube.com/watch?v=9Nmjs-NuXIw)
+
 - [THIS Is What George Orwell Got Wrong](https://www.youtube.com/watch?v=UI4VDZNyL-Y)
 - [70后慢生活 - YouTube](https://www.youtube.com/c/70%E5%90%8E%E9%80%80%E4%BC%91%E6%97%A5%E8%AE%B0/videos)
-- [走进中国极旱之地——宁夏西海固！在深山里偶遇道长，谈天地玄妙，在六盘山，体验雪地风光！固原老城，望尽历史沧桑！](https://www.youtube.com/watch?v=nl8fEWbc-tY)
+
 - [bollinger bands - YouTube](https://www.youtube.com/results?search_query=bollinger+bands)
 - [Uncle Rural Gourmet - YouTube](https://www.youtube.com/channel/UC00q9Udz9vdljIfN-8fCkQQ/videos)
 - [Ryan Shirley - YouTube](https://www.youtube.com/c/RyanShirley/videos)
