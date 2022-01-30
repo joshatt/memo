@@ -1,3 +1,4 @@
+- [财经冷眼：徐州8娃事件引全网震怒，官方救火封杀屡屡翻车，“盛世”国人命运的写照？花巨资买5国政要出席冬奥撑门面，好丢人！（20220130第721期）](https://www.youtube.com/watch?v=bqi9KcSc2ug)
 - [被慰問的老同志生不如死，不只張高麗孟建柱，早被裝入玻璃屋；民族問題弱化，陳小江升官；習近平多穿迷彩服；武漢芯片廠怎麼改制，華為5G是假的？｜點點今天事（20210130）](https://www.youtube.com/watch?v=MYvKQ_8Uyxg)
 - [過年精選特輯│攻解放軍「致命弱點」！ 美日台聯手堵中國家門口！？【關鍵時刻】-劉寶傑 黃世聰 李正皓 王瑞德 吳子嘉](https://www.youtube.com/watch?v=FIkM_o9mB40)
 - [Nick Shawn - YouTube](https://www.youtube.com/c/NickShawnFX/videos)
