@@ -1,3 +1,4 @@
+- [Nick Shawn - YouTube](https://www.youtube.com/c/NickShawnFX/videos)
 - [5 Reasons to buy the Leica M Monochrom in 2022](https://www.youtube.com/watch?v=lwFIgHKpvw4)
 - [Andhika Zanuar - YouTube](https://www.youtube.com/c/andhikazanuar/videos)
 - [红遍中国，为什么还要离开？洋人学中医、瑜珈，纽约当针灸师；《新还珠格格》男主角改行的故事｜今夜十点见（班杰明、江汉）](https://www.youtube.com/watch?v=xzQWnleYMDw)
