@@ -1,3 +1,4 @@
+- [形势四大不利，危及习近平连任危言；冬奥：比预计的麻烦大；零容忍：1月抓了七只大老虎；清零与共存：中西方大不同｜今天大新闻（纪硕鸣 20220202）](https://www.youtube.com/watch?v=Biyc-w-of4c)
 - [TraderNick - YouTube](https://www.youtube.com/c/TraderNick/videos)
 - [PowerfulJRE - YouTube](https://www.youtube.com/c/joerogan/videos)
 - [女孩拦车入西藏，坐在车上顶着天、过四季，藏人生活在云雾中；女孩学会不抱怨，不比上，比下心理平衡｜今夜十点见（陆红、江汉）](https://www.youtube.com/watch?v=rlb07t1aCq4)
