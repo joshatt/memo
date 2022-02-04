@@ -1,3 +1,4 @@
+- [北京地震大家怕是預兆；鄭州水災是北京公關秀，問題不在瞞報；北大報告：中美科技脫鈎對中國代價比美國大｜點點今天事（20220203）](https://www.youtube.com/watch?v=ISWI01dzdBc)
 - [Shoulder Stretches & Exercises](https://www.youtube.com/watch?v=MqmxCzh2Kyg)
 - [We Need to Talk...](https://www.youtube.com/watch?v=SXN87U_1w7o)
 - [形势四大不利，危及习近平连任危言；冬奥：比预计的麻烦大；零容忍：1月抓了七只大老虎；清零与共存：中西方大不同｜今天大新闻（纪硕鸣 20220202）](https://www.youtube.com/watch?v=Biyc-w-of4c)
